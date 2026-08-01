@@ -204,7 +204,7 @@ sourabh.jangid.dev@gmail.com
 
 💼 LinkedIn
 
-https://www.linkedin.com/in/sourabh-jangi
+https://www.linkedin.com/in/sourabh-jangid
 
 🐙 GitHub
 
